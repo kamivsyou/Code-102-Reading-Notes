@@ -1,1 +1,2 @@
 # Code-102-Reading-Notes
+## 9/21/21 ADDED TABLE OF CONTENTS
